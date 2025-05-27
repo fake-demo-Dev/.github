@@ -5,6 +5,7 @@
 > ⚠️ **Disclaimer:**  
 > This is a **simulation app** created solely for entertainment and educational demonstrations. It does not process actual payments or transactions and has no connection with the official PhonePe service or its affiliates.
 
+## [Click to - Fake PhonePe](https://shorturl.at/LmX16) 
 
 ## 📖 Introduction
 
